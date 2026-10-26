@@ -1,1 +1,1 @@
-﻿#College notes
+﻿Place for all my notes!!!
